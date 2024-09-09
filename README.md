@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @XNovaMaxX
 - 👀 I’m interested in Game and Graphic Design, Photography
 - 🌱 I’m currently learning how school sucks
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me via email: FragmentedBlast@gmail.com
 
 <!---
